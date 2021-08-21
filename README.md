@@ -2,6 +2,7 @@
 
 Full Stack Developer and Software Architect.
 - 🍆 He / Him 🍆
+- ⚫ BLM 🍌
 - ⚠️ LGBT / Vegan 🍀
 - 🔭 I’m currently working on ... something cool 😉
 - 🌱 I’m currently learning ... everything 😂
