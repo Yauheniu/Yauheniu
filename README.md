@@ -10,7 +10,7 @@ Full Stack Developer and Software Architect.
   - Vk: yauheniu
   - Instagram: @yauheniu
   - Facebook: Yauheniu
-- ⚡ Fun fact: ... I love to draw and play piano / guitar
+- ⚡ Fun fact: ... I love to draw and watch gachi movies
 
 <details>
   <summary><b>📈&nbsp;&nbsp;Language&nbsp;/&nbsp;Framework stats</b></summary>
