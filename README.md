@@ -1,7 +1,8 @@
 ### Hi there, I'm Yauheniu 👋
 
 Full Stack Developer and Software Architect.
-- ⚠️ LGBT/Vegan 🍀
+- 🍆 He / Him 🍆
+- ⚠️ LGBT / Vegan 🍀
 - 🔭 I’m currently working on ... something cool 😉
 - 🌱 I’m currently learning ... everything 😂
 - 💬 Ask me about ... anything 😌
